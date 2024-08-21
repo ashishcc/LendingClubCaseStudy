@@ -33,5 +33,5 @@
 
 
 ## Contact
-Created by [@ashishcc] - feel free to contact me!
+Created by [@ashishcc] & [@ash-gtx] - feel free to contact me!
 
